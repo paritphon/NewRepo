@@ -1,2 +1,2 @@
 # NewRepo
-Hi , My nickname is pare
+Hi , My nickname is pareMy name is paritphon
